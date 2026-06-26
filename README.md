@@ -44,7 +44,7 @@ To help students learn programming step by step and build real-world skills thro
 
 ## 📫 Connect With Me
 
-LinkedIn: https://www.linkedin.com/in/your-linkedin
+[LinkedIn: ](https://www.linkedin.com/in/meher-shaikh-188194417)
 
 ---
 
